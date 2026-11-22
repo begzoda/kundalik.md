@@ -1,0 +1,2 @@
+# kundalik.md
+mening kundaligim
