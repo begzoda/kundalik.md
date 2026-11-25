@@ -1,1 +1,1 @@
-
+salom bu mening kundaligim
